@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student in my last year of the Systems Analyst degree, currently studying the 5th semester..
+I'm a student in my last year of the Systems Analyst degree, currently studying the 5th semester
 
 
 ## 🌐 Socials:
